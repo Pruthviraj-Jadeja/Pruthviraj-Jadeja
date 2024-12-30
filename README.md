@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Pruthviraj-Jadeja
 - 🌍 Explorer | 📚 Lifelong Learner
 - 🎨 Passionate about the Creative Field
-- 💡 Constantly seeking inspiration & growth
+- learning Programming and Designing. interested in UX Designing.
